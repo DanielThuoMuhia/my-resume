@@ -1,1 +1,1 @@
-# Daniel Thuo Resumee
+## Daniel Thuo Resume
