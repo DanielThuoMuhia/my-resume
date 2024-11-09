@@ -1,1 +1,1 @@
-## Daniel Thuo Resume
+# Daniel Thuo Muhia Resume
